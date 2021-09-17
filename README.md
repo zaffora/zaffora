@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zaffora
-- 👀 I’m interested in Java, C#, and Photoshop
+- 👀 I’m interested in Java, C#, and Photoshop remote working jobs
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on company websites.
 - 📫 How to reach me: email - dzaffor1@dtcc.edu phone - 1-302-690-7690
